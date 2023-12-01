@@ -1,2 +1,3 @@
-# app-dev.
-My first repository.
+The film is a story about the young couple Primo (Padilla) and George (Bernardo), who dream of growing old together. However, as their feelings go deep for each other, they have to deal with the struggles of being in a long-term relationship and the harsh reality of life.
+Seventeen-year-old Athena Dizon unwittingly plays a trick on resident heartthrob and bad boy Kenji de los Reyes. All of a sudden, she finds herself pretending to be his girlfriend to make an ex jealous; however, she falls in love with him.
+While earning a degree in Spain, a young architecture student dealing with grief meets a fellow expatriate trying to escape her past.
